@@ -36,7 +36,7 @@ Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1O0pOvPm2nUDaj6zB
 Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1zo7gv1xWff9Y_EA9uBNebJxHMzo6bMZi?usp=drive_link       
 
 ## Videos demostrativos
-Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1VVKZMpEklxg3FUv6pk7cPSCfc2Bc9Mm-?usp=drive_link
+Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1WwVZFqhQxqJ2eE9SMlglSZDFrjZky76G?usp=drive_link
 
 ## Soldadura
 Juan Diego Ruiz Rivera: https://drive.google.com/file/d/1sIFaZ6tI02HvUQJNo_UPFAw2K5N9UiQN/view?usp=drive_link
