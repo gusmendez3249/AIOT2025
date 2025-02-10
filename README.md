@@ -43,10 +43,10 @@ Juan Gustavo Ángel Cruz Méndez: https://drive.google.com/drive/folders/1Q3gqnT
 Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1WwVZFqhQxqJ2eE9SMlglSZDFrjZky76G?usp=drive_link
 
 
-Juan Gustavo Ángel Cruz Méndez:
+Juan Gustavo Ángel Cruz Méndez: https://drive.google.com/drive/folders/1H1tiEtJES7QpAPRV_eV2pGezNoD6iL_s?usp=sharing
 
 ## Soldadura
 Juan Diego Ruiz Rivera: https://drive.google.com/file/d/1sIFaZ6tI02HvUQJNo_UPFAw2K5N9UiQN/view?usp=drive_link
 
 
-Juan Gustavo Ángel Cruz Méndez:
+Juan Gustavo Ángel Cruz Méndez: https://drive.google.com/drive/folders/1tpFt6mBEdAddgb2OXf93Zt3579ZEcKYv?usp=sharing
