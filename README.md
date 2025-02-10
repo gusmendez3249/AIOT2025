@@ -32,12 +32,12 @@ Unidad I. Adquisición y procesamiento de datos
 ## Parte teórica
 Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1O0pOvPm2nUDaj6zBFy7qAXRvYpPySH8U?usp=drive_link
 
-Juan Gustavo Ángel Cruz Méndez:
+Juan Gustavo Ángel Cruz Méndez: https://drive.google.com/drive/folders/1W_fV-M6wbuNoYqTKSlwenEmgywozyV4p?usp=sharing
 ## Parte práctica
 Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1zo7gv1xWff9Y_EA9uBNebJxHMzo6bMZi?usp=drive_link       
 
 
-Juan Gustavo Ángel Cruz Méndez:
+Juan Gustavo Ángel Cruz Méndez: https://drive.google.com/drive/folders/1Q3gqnT8QX-TpCKnsEbBoSp8YqOpuA-Km?usp=sharing
 
 ## Videos demostrativos
 Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1WwVZFqhQxqJ2eE9SMlglSZDFrjZky76G?usp=drive_link
