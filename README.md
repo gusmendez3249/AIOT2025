@@ -32,11 +32,21 @@ Unidad I. Adquisición y procesamiento de datos
 ## Parte teórica
 Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1O0pOvPm2nUDaj6zBFy7qAXRvYpPySH8U?usp=drive_link
 
+Juan Gustavo Ángel Cruz Méndez:
 ## Parte práctica
 Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1zo7gv1xWff9Y_EA9uBNebJxHMzo6bMZi?usp=drive_link       
+
+
+Juan Gustavo Ángel Cruz Méndez:
 
 ## Videos demostrativos
 Juan Diego Ruiz Rivera: https://drive.google.com/drive/folders/1WwVZFqhQxqJ2eE9SMlglSZDFrjZky76G?usp=drive_link
 
+
+Juan Gustavo Ángel Cruz Méndez:
+
 ## Soldadura
 Juan Diego Ruiz Rivera: https://drive.google.com/file/d/1sIFaZ6tI02HvUQJNo_UPFAw2K5N9UiQN/view?usp=drive_link
+
+
+Juan Gustavo Ángel Cruz Méndez:
